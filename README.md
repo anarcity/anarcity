@@ -1,7 +1,9 @@
 rick / jo / kieran
 (pref doesnt rlly matter, and idm nicknames!) 
-- first and foremost, i am not in the cookie run fandom. i like a few of the characters, im (unfortunately) a cr splitroject, and i have a headmate whos an introj of adventurer cookie. adding onto this, if im in a skin (especially cr) and it says dni, then **dni**. i may be in a bad mood or just. dont want to talk to people.
-- i rarely talk in public chat unless my friends r offline. if u wanna talk to me, it'd be better if u whispered me. even if its js a crown or something. if
-- default ponies will be hidden (unless you're in editor, then i'll give you the benefit of the doubt) 
-- dni if you apply to anything [here](https://bundles.cc/rick-dni). thin ice n a2f can int
-- thats all i think goodbye everynyan
+- retyping this bc it sounded rlly passive agressive! oof
+- we're a system!! please don't be weird and ask shit like "can __ front" or be a weirdo towards introjects! if you do we will hide you not sorry :3
+- please please PLEASE int if you're into any of the following, even if it's just a little
+- epithet erased (and anime campaign i've watched that too), puyo puyo (tetris), parappa the rapper + um jammer lammy, wordgirl (havent been into it as much as of late) pokemon tabletop (specifically team peasant poppers, but i also do like team fresh floof), pokemon scarvio + dlc, and/or pokemon super mystery dungeon!
+- cr fandom can int i guess... rolls eyes /lh
+- sourcemates pretty please int
+- but basically have general human decency and respect our boundaries and ur fine to int!! :3
