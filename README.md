@@ -1,8 +1,12 @@
-rick 
-- basic dni criteria dont be a weirdo bla bla bla 
-- we're a system!! please don't be weird and ask shit like "can __ front" or be a weirdo towards introjects! if you do we will hide you not sorry :3
-- please please PLEASE int if you're into any of the following, even if it's just a little
-- epithet erased (and anime campaign i've watched that too), puyo puyo (tetris), parappa the rapper + um jammer lammy, pokemon tabletop (specifically team peasant poppers, but i also do like team fresh floof), pokemon (black to scarvio + dlc, not black 2 though :[) im not SUPER into ace attorney but ive played the first game, and pokemon super mystery dungeon!
-- cr fandom can int i guess... rolls eyes /lh 
-- sourcemates pretty please int 
-- but basically have general human decency and respect our boundaries and ur fine to int!! :3
+<div align="center"> rick / jo / n </div>
+<br />
+<p align="center"><img width="250" height="250" src="https://files.catbox.moe/3lpefc.png"
+></p>
+<div align="center"> syshost of an introj heavy system  </div> 
+<div align="center"> basic dni criteria. aside from that we'll block u if u disturb us :3 </div> 
+<div align="center"> please also dni if u have eyestrain ponies or use fonts </div> 
+<br />
+<div align="center"> i loove epithet erased, puyo puyo (tetris), the parappa the rapper  </div> 
+<div align="center"> series, pokemon in general, splatoon, and cr (fandom iffy...) </div> 
+<div align="center"> we barely ever int first sorry. also usually in party chat </div> 
+<p align="center"><img width="75" height="75" src="https://pokemon-project.com/pokedex/img/sprite/BW/Animado/png/643_s.png"
