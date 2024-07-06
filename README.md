@@ -5,6 +5,7 @@
 <div align="center"> nby lesbian syshost of an introj heavy system  </div> 
 <div align="center"> basic dni criteria. aside from that we'll block u if u disturb us :3 </div> 
 <div align="center"> please also dni if u have eyestrain ponies or use fonts </div> 
+<div align="center"> dni if u think "blackwashing" exists search engines are free </div> 
 <br />
 <p align="center"><img width="75" height="75" src="https://pokemon-project.com/pokedex/img/sprite/BW/Animado/png/643.png"<br />
 <div align="center"> i loove epithet erased, puyo puyo (tetris), the parappa the rapper  </div> 
